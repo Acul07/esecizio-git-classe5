@@ -1,4 +1,4 @@
-sono Luca Meneghini 5DIT dell'anno scolasstico 25/26
+sono Luca Meneghini 5DIT dell'anno 25
 palmaro
 16157
 ciao a tutti
